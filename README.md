@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NEMEC730
 - 👀 I’m interested in pvz
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on mika kit
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me skibidi tualet
 - 😄 Pronouns: ...
 - ⚡ Fun fact: mina ei koira
